@@ -5,4 +5,4 @@ Not all of us are equally blessed. Some of us have some sort of financial proble
 These are the sample answers from which you can take help while applying for financial aid.
 
 
-Note - These are only sample answers , from which you can take help in case of any confusion while applying for financial aid.
+Note - These are only examples, from which you can take help in case of any confusion while applying for financial aid.
